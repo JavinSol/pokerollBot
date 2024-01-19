@@ -1,0 +1,1 @@
+Do note: The images for the moves are currently not uploaded due to the sheer amount. Will be uploaded eventually. Also please insert your file locations for areas that do say so, and input your Discord Bot token.
